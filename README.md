@@ -1,0 +1,2 @@
+# dinruzman.github.io
+mypage
